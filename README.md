@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-I have plans to write something her but not today.
+I have plans to write something here but not today.
 
 Soon...
 <!--
